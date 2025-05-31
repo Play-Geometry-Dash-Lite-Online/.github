@@ -2,6 +2,8 @@
 
 **Are you ready for the most intense, blazing, and unstoppable parkour challenge?** Welcome to **Geometry Dash Lite Online**, the ultimate 3D arcade runner that pushes your reflexes to the extreme!
 
+## <a href="https://1kb.link/RXt7j6">👉 Click To Play Geometry Dash Lite Unblocked 👈</a>
+
 ### What is Geometry Dash Lite Online?
 
 Geometry Dash Lite Online is an **epic, hyper-casual** parkour-style game that combines **fast-paced running, jumping, and dashing** through a thrilling, vibrant neon 3D world. With smooth HD graphics and an **endless** level design, this game guarantees endless fun and non-stop action for players of all ages.
